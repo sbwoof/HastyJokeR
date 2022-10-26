@@ -1,6 +1,6 @@
-Hi! Im hastyjoker 
+Hi! Im sbwoof 
 Currently learning programming
-Discord- HastyJokeR#2026
+Discord- Sb#2026
 
 <!---
 HastyJokeR/HastyJokeR is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
